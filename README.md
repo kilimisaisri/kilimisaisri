@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with programming 😂
 - 💬 Ask me about anything
 - 📫 How to reach me:kilimisaisri@gmail.com
-- 😄 Pronouns:saisri
-- ⚡ Fun fact:😊😊😊
+- 😄 Pronouns:saisrito my home 
+- ⚡ Fun fact: the distance from my home is equal to the distance from my 🔅 to my home 😊😊
 
